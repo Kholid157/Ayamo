@@ -1,0 +1,2 @@
+# Ayamo
+Nothing last forever
